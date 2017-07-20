@@ -75,7 +75,7 @@ Permanent position in Austin, TX preferred. Remotes considered.
 
 **The Application Process**
 
-* Send us your résumé or LinkedIn profile with a concise, personalized Email that explains why you would be the right person for the opportunity 
+* Send us your résumé (robbins@stoplight.io) or LinkedIn profile with a concise, personalized Email that explains why you would be the right person for the opportunity 
 * We’ll conduct an initial phone screen with potential candidates 
 * The final step will involve an in-person interview with the leadership team. Be prepared to speak in detail about your specific accomplishments and show us some examples of your work
 * Our due diligence process will involve a reference and background check 
