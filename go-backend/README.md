@@ -58,9 +58,7 @@ We are looking for a forward thinking technologist who has a full understanding 
 
 **Job Location** 
 
-Permanent position in Austin, TX preferred.
-
-Remotes considered.
+Permanent position in Austin, TX preferred. Remotes considered.
 
 **The Application Process**
 
